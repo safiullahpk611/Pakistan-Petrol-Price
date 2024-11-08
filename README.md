@@ -6,3 +6,4 @@ Keep updated with the latest Petroleum Prices In Pakistan on the go. Recently, t
 ![ss6](https://github.com/user-attachments/assets/399f685c-69f3-4f88-84c4-87da4391956e)
 ![ss4](https://github.com/user-attachments/assets/a63180c4-75c0-40a3-96cd-4b4a0f89d44a)
 ![ss5](https://github.com/user-attachments/assets/9660813f-d0d8-45ac-bf8a-fe51f19eb865)
+![ss7](https://github.com/user-attachments/assets/cc80e81f-f400-45d7-817d-0656f912363c)
